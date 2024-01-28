@@ -14,4 +14,4 @@
 
 Готово! Приятного использования.
 
-![image]([[https://user-images.githubusercontent.com/124806098/227601447-abddbff1-af64-4de0-bac3-51344b039f86.png](https://avatars.githubusercontent.com/u/149227120?v=4)https://avatars.githubusercontent.com/u/149227120?v=4](https://avatars.githubusercontent.com/u/149227120?v=4)https://avatars.githubusercontent.com/u/149227120?v=4)
+![image](https://avatars.githubusercontent.com/u/149227120?s=400&u=7c7dd7262663f12f8f67aa2b71a392544b725dec&v=4)
